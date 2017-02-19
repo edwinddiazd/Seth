@@ -1,0 +1,2 @@
+# Seth
+proyecto industrias
